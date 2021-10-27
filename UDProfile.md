@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UsmanDurrani1999
-- 👀 I’m interested in Ui/Ux Deigns.
+- 👀 I’m interested in Ui/Ux Designs.
 - 🌱 I’m currently learning Ui/Ux Designing.
 - 💞️ I’m looking to collaborate on Websites and Mobile App Designs.
 - 📫 How to reach me ...
